@@ -10,6 +10,21 @@ $\large{\text\it\color{#f6e8e8}{"ㅤEvenㅤ}}$ $\large{\text\it\color{#f0ecc7}{a
       <br/>
 </br>
 
+<p align="center">
+  <p align="center"> <img align="center" src="https://64.media.tumblr.com/cb5bff86ff94b01c3aaec59bb0a2c49f/69adafb543f276ac-3f/s1280x1920/1783fe047c31ba6dc62455b10dc9b5b8d5181841.pnj" width="200"> <p align="center">
+
+ <p align="center"> Hello, my name is Gillion. I'm 17 and British, I am also autistic and dyslexic. I adore Just Roll With It, Slimecicle, DnD, and a lot more interests on my strawpage. </p>
+   <p align="center"> Please read my strawpage beforehand if you'd like to be friends. </p>
+ 
+ <p align="center">
+  <p align="center"> <img align="center" src="https://64.media.tumblr.com/cb5bff86ff94b01c3aaec59bb0a2c49f/69adafb543f276ac-3f/s1280x1920/1783fe047c31ba6dc62455b10dc9b5b8d5181841.pnj" width="200"> <p align="center">
+
+ <p align="center"><a href="https://destinyschosen.straw.page/home"><img src="https://64.media.tumblr.com/d1650b8ca1175f460f117db8f35bae20/a3effce35c765a26-87/s1280x1920/541a338d8ec2ca0eb9e7b866a9ef1b3281a9af88.pnj?raw=true" width="15%"></a>&nbsp;&nbsp;&nbsp;<a href=https://heroofthedeep.atabook.org/><img src="https://64.media.tumblr.com/18ce48151532f2c3497f6db7f5b19e5f/eb131d77bff61aee-77/s1280x1920/c05e08e6a38dc7f246e952b44ac3a195c5ed5a0e.pnj?raw=true" width="15%">
+
+ <p align="center"><a href="https://fruitbowltrio.straw.page/home"><img src="https://64.media.tumblr.com/e7dfde2e247599f2f586c55a7718cc46/61484a2dbf8a31d9-df/s640x960/591efea353a4cdc4cee5eeafe9842029ba16f704.pnj?raw=true" width="10%">
+
+</br>
+ </br>
  <div align="center">
 <details>
   <summary>$\tiny\color{#fffff}{\text{PT + SUPPORTER INFO}}$</summary>
