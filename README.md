@@ -30,9 +30,9 @@ $\large{\text\it\color{#f6e8e8}{"ㅤEvenㅤ}}$ $\large{\text\it\color{#f0ecc7}{a
 <p align="center">
   <p align="center"> <img align="center" src="https://64.media.tumblr.com/985e32155de33323e69ca4e1428e6629/2dd790ac9ce0a3b1-81/s1280x1920/356a3943e009d748f603f728a33bbd752c00841a.pnj" width="400"> <p align="center">
 
+<p align="center">
+  <p align="center"> <img align="center" src="https://64.media.tumblr.com/dfa27f060ac7d19b515181d69a0a2daf/6f49e200ecbf3aa0-06/s1280x1920/7dd36dc080e410a1152c4321d3ab1b39de16e5b6.jpg" width="400"> <p align="center">
 
-</br>
- </br>
  <div align="center">
 <details>
   <summary>$\tiny\color{#fffff}{\text{PT + SUPPORTER INFO}}$</summary>
