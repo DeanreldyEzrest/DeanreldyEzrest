@@ -16,10 +16,13 @@ $\large{\text\it\color{#f6e8e8}{"ㅤEvenㅤ}}$ $\large{\text\it\color{#f0ecc7}{a
  <sub> 
 I am nearly always offtab or afking unless actively moving, majority of the time I have public chat off. Please whisper to interact with me.
 C+H is always encouraged, even when I'm with friends I do not mind as long as I'm not moving around constantly.
-Do not copy my skins. I don't join other parties on safe server one apart from my friends.
+Do not copy my skins, you can inspo from my skins but do not completely copy.
 
+</br>
+ </br>
+I enjoy regiments/species and am mostly active in ones i am in, although i rarely join over 3 regiments/species at a time unless allying. If you have a problem with that, kindly do not interact or hide/block me.
  </br>
  </br>
-Do not ask for supporter, mine was a gift and I would not " gift/give " you supporter regardless. 
+Do not ask for supporter, mine was a gift and I would not " gift/give " you supporter regardless. I will help you out with build limit in any other server than safe server one IF you ask politely and don't spam me and all my friends just because a lot of us have supporter.
 </details>
  </sub>
