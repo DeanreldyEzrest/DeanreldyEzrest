@@ -19,6 +19,7 @@ C+H is always encouraged, even when I'm with friends I do not mind as long as I'
 Do not copy my skins. I don't join other parties on safe server one apart from my friends.
 
  </br>
+ </br>
 Do not ask for supporter, mine was a gift and I would not " gift/give " you supporter regardless. 
 </details>
  </sub>
