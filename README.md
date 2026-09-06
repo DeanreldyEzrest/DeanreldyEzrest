@@ -1,3 +1,6 @@
+<p align="center">
+     <br/>
+  <img align="center" src="https://komarev.com/ghpvc/?username=DeanreldyEzrest&label=+++the+touch+of your+flesh+is+tough+to+resist&color=FFFFFF&abbreviated=true&style=flat-square">
 
 <p align="center">
   <p align="center"> <img align="center" src="https://64.media.tumblr.com/985e32155de33323e69ca4e1428e6629/2dd790ac9ce0a3b1-81/s1280x1920/356a3943e009d748f603f728a33bbd752c00841a.pnj" width="400"> <p align="center">
