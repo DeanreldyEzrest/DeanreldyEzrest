@@ -16,7 +16,9 @@ $\large{\text\it\color{#f6e8e8}{"ㅤEvenㅤ}}$ $\large{\text\it\color{#f0ecc7}{a
  <sub> 
 I am nearly always offtab or afking unless actively moving, majority of the time I have public chat off. Please whisper to interact with me.
 C+H is always encouraged, even when I'm with friends I do not mind as long as I'm not moving around constantly.
-   
-Do not copy my skins. You can inspo anything I've made ( skins , github , strawpage ) without permission as long as it isn't copied exactly, you do not need to ask or credit me. I don't really roleplay on ponytown seriously, the same goes for ships. You are welcome to talk to me about ships but I do not roleplay as them. I don't join other parties on safe server one apart from my friends.
+Do not copy my skins. I don't join other parties on safe server one apart from my friends.
+
+ </br>
+Do not ask for supporter, mine was a gift and I would not " gift/give " you supporter regardless. 
 </details>
  </sub>
