@@ -24,9 +24,9 @@ $\large{\text\it\color{#f6e8e8}{"ㅤEvenㅤ}}$ $\large{\text\it\color{#f0ecc7}{a
 
 </br>
  </br>
- <p align="center"><a href="https://destinyschosen.straw.page/home"><img src="https://64.media.tumblr.com/d1650b8ca1175f460f117db8f35bae20/a3effce35c765a26-87/s1280x1920/541a338d8ec2ca0eb9e7b866a9ef1b3281a9af88.pnj?raw=true" width="20%"></a>&nbsp;&nbsp;&nbsp;<a href=https://heroofthedeep.atabook.org/><img src="https://64.media.tumblr.com/18ce48151532f2c3497f6db7f5b19e5f/eb131d77bff61aee-77/s1280x1920/c05e08e6a38dc7f246e952b44ac3a195c5ed5a0e.pnj?raw=true" width="20%">
+ <p align="center"><a href="https://destinyschosen.straw.page/home"><img src="https://64.media.tumblr.com/18cfd0f6c068d6b5cec02b8628e735c6/615c1ec2ea9d006a-79/s1280x1920/e77b22f355b21dbb66a08a0a2e848168fcba1f38.pnj?raw=true" width="20%"></a>&nbsp;&nbsp;&nbsp;<a href=https://heroofthedeep.atabook.org/><img src="https://64.media.tumblr.com/c4f362ce41108f2bb3baa3cf81f5623b/615c1ec2ea9d006a-12/s1280x1920/468b6b90d25f1232cc108d7e0d98a237396dedde.pnj?raw=true" width="22%">
 
- <p align="center"><a href="https://fruitbowltrio.straw.page/home"><img src="https://64.media.tumblr.com/e7dfde2e247599f2f586c55a7718cc46/61484a2dbf8a31d9-df/s640x960/591efea353a4cdc4cee5eeafe9842029ba16f704.pnj?raw=true" width="15%">
+ <p align="center"><a href="https://fruitbowltrio.straw.page/home"><img src="https://64.media.tumblr.com/fa0413ff2d29faaf82c3a32d12066d8a/615c1ec2ea9d006a-00/s1280x1920/12e7413d8a5b9d6c29ddb6288c3a66708172d0cf.pnj?raw=true" width="20%">
 
 </br>
  </br>
